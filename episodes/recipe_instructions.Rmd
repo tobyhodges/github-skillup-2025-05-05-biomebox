@@ -34,8 +34,8 @@ exercises: 2
 
 - Mix the brown sugar and cinnamon in a small bowl.
 - In a separate bowl, mix the glaze ingredients.
-- Preheat oven to 375°F (290°C) and butter a 12" cast iron skillet or deep baking container (glass or enamel will work just 
-fine).
+- Preheat oven to 375°F (190°C) and butter a 12" cast iron skillet or deep baking container (glass or enamel will work just 
+
 
 **Add leavening agents to dough:**
 
